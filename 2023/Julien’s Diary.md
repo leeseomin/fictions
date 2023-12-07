@@ -59,8 +59,9 @@ that had long provided solace? Time, now a stagnant river beside which I
 lay my wearied thoughts. The room, a silent custodian, sheltered the
 young man and the testament of his life, prematurely truncated, yet
 entwined eternally with the legacy of the flora he so dearly cherished.\
-**2** 
-\*The cosmos had always been, to the inhabitants of the Earth, a
+\
+2\
+The cosmos had always been, to the inhabitants of the Earth, a
 vast canopy of passive spectatorship, twinkling indifferently to the
 rhythms of lives and civilizations below. But that silent observer,
 adorned in the gossamer of starlight, concealed within its expanse an
