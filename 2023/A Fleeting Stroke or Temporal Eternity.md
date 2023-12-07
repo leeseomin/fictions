@@ -1,8 +1,8 @@
 ## A Fleeting Stroke or Temporal Eternity
-\
+
 ### LEE SEOMIN (이서민)
-\
-\
+
+
 1\
 \
 A man, a solitary figure by the name of Elias, stood immobile before an
