@@ -73,6 +73,7 @@ hearts of its crew as resilient and steadfast as the dark infinity they
 sought to explore.\
 \
 2\
+\
 In the sterile confines of The Celestial Seeker, J3 stood in front of
 the viewport, gazing at the shimmering stars that lay scattered across
 the infinite canvas of space. "It's remarkable, isn't it?" he mused
