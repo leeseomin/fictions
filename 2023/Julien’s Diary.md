@@ -128,7 +128,9 @@ but a cataclysmic proclamation that echoed in the hearts of a species
 brought to the threshold of its own tenure. In the obscured dance of sun
 and dust, humanity awaited the revelation of its endurance or its
 epitaph.\
-**3** In the wake of devastation, the Earth lay wounded, its surface
+\
+3\
+In the wake of devastation, the Earth lay wounded, its surface
 scarred and atmosphere laden with the burdensome veil of alien
 particulates. The sun's rays, once givers of life, now impotent against
 the obscuring shroud, filtered to the Earth in a spectral parody of
