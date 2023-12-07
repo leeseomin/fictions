@@ -2,7 +2,7 @@
 
 ### LEE SEOMIN (이서민)
 
-
+\
 1\
 \
 A man, a solitary figure by the name of Elias, stood immobile before an
@@ -28,6 +28,7 @@ and curve, with every suggestion of movement trapped in stillness, he
 devoured the imminent catastrophe with an insatiable intellectual
 hunger. He stood on the precipice of terror and beauty, the human
 condition encapsulated in a moment of suspended chaos.\
+\
 2\
 \
 The scene gradually receded, revealing an unexpected reality. It was as
@@ -53,6 +54,7 @@ anticipation, just like the sculpture Elias had been examining. As the
 silent spectacle unfolded, one could not help but wonder at the mirage
 that life is, captured in countless droplets of existence, each
 reflecting a unique interpretation of reality.\
+\
 3\
 \
 The cloud, swollen with countless tales and fantasies, could no longer
