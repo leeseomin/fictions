@@ -1,7 +1,7 @@
-## Julien’s Diary
+### Julien’s Diary
 
 
-LEE SEOMIN (이서민)\
+# LEE SEOMIN (이서민)
 \
 1\
 The city lay beneath the shroud of twilight as a lattice of shadows and
