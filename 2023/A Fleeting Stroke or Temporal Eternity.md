@@ -77,6 +77,7 @@ midst of the barren desert, was frozen in time, captured by an unseen
 hand. As the observer had become the observed, Elias's gaze had been
 replaced by that of a painter, scrutinizing the desert-man's joy with an
 artist's critical eye.\
+\
 4\
 \
 The painter, a man of nebulous name known as Luca, inspected the
@@ -100,6 +101,7 @@ This massive release of energy rippled through the cosmos. The universe,
 unable to contain this energy, began to implode upon itself, a mirror to
 Luca's creative and destructive caprice. It shrank, contracted, and
 finally succumbed to its fate, evaporating into oblivion.\
+\
 5\
 \
 In the aftermath of absolute silence, a faint stir began to take shape.
@@ -125,4 +127,5 @@ acknowledgment of the beautiful absurdity of existence, as he returned
 to his meditative state, welcoming this new era of existence. The cycle
 had begun anew, an infinite loop of creation, destruction, and rebirth,
 with life persisting, as resilient and tenacious as a mosquito's feast.\
+\
 end.
