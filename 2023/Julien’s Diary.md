@@ -212,7 +212,7 @@ calamity but by the delicate suspicion of promise interlaced within
 destruction. --- Now more than ever, we navigate by the stars we cannot
 see, through night perpetual. Our hands grope in the gloom, grasping for
 one another; our fingers entwine, seeking salvation in connection over
-the void of our fears.
+the void of our fears.\
 \
 4\
 In a world dimmed by dust and disquiet, within the sterile
@@ -286,7 +286,7 @@ enlightened enclaves, a collective euphoria simmered, the enthusiasm of
 shared discovery bubbling like a panacea against the plagues of despair.
 Here, wisdom bore its lamp high, and science, its acolytes impassioned
 by the prospect of an omen turned oracle, dared to whisper of dawn
-amidst the enduring twilight.
+amidst the enduring twilight.\
 \
 5\
  Across the world, the mahogany-laden inner chambers of industry
@@ -439,7 +439,7 @@ world, humanity grappled with an incipient madness --- a dissonance
 between what was known and what fears were projected onto the murk of an
 uncertain tomorrows. The extinction they feared was not just of the
 flesh but of the soul --- a spirit unmoored in the descent into
-pandemonium, grappling for a lifeline amidst the deluge of panic.
+pandemonium, grappling for a lifeline amidst the deluge of panic.\
 \
 7\
  In the burgeoning silence that followed Earth's rebuke, humanity's
@@ -787,7 +787,10 @@ accomplishment. Julien's chronicles became the map charting the hidden
 veins of a healing yet to be actualized --- a promise of salvation
 nestled in the diaries of past travels, each page an origami vessel
 bearing humanity's fragile hopes ever forward.\
-**12** The chronicles of Julien Marechal's odyssey painted not only the
+
+\
+12\
+ The chronicles of Julien Marechal's odyssey painted not only the
 portrait of a seeker but also sketched the landscapes of his pilgrimage
 through realms fraught with myths and steeped in antiquity. Each
 subsequent entry revealed the breadth of his wanderings and the vastness
@@ -849,7 +852,9 @@ The accursed land, brooding upon the edge of legend and history, was
 poised to surrender its secret --- a botanical treasure, ready to be
 unshrouded and grasped by those emboldened by a whisper of hope, and
 now, perhaps, the key to salvation.\
-**13** In the languid embrace of a new day's dawning, the sterile
+\
+13\
+** In the languid embrace of a new day's dawning, the sterile
 quietude of Julien's apartment, once abuzz with the vibrant energy of
 life and botanical exuberance, told a different tale --- a narrative
 punctuated by abrupt cessation, a life cut short by the unanticipated
@@ -916,7 +921,9 @@ the footsteps of brilliance, determined to cast light upon that which
 lurks beneath the veneer of friendship, the cancerous swell of envy. For
 a life's untimely end heralds not only a finale but also the genesis of
 an unwritten chapter in the tale of those that remain.\
-**14** It was in the aftermath of the meteor's wrath that the most
+\
+14\
+** It was in the aftermath of the meteor's wrath that the most
 insidious of growths took hold --- not from the shattered soils or
 battered biomes of a distressed Earth, but from the greed-infested
 ambitions of humans grasping for dominance in a world altered beyond
@@ -987,7 +994,9 @@ commerce and every discovery was tainted by the clamor of coins and the
 rattle of chains. The life cut short, the legacies usurped, and the
 Earth, both victim and unwilling co-conspirator, braced for the harvest
 of an imperious reign.\
-**15** As the centuries unwound their spool of days and nights in an
+\
+15\
+** As the centuries unwound their spool of days and nights in an
 almost indistinguishable procession of light and darkness, the Earth
 bore the testaments of our indiscretions and ambitions. A peculiar
 silence had befallen a world that teetered on the brink of unparalleled
@@ -1061,7 +1070,8 @@ between heartbeats that knew no echo, the cosmos whispered, uncharted
 and beckoning --- a sirenic call to fashion an unexplored cosmos from
 humanity's most obscure yearning: the harbinger of endings and the
 genesis of realms to come.\
-**Epilogue.**\
+\
+Epilogue.\
 In a world where nothing ages or ends, people start feeling restless.
 They miss the natural cycle of life and death, and this longing leads to
 deep discussions among scholars and scientists.\
