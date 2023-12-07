@@ -71,6 +71,7 @@ within their souls, like the whispers of a distant past guiding them
 onward. The Abyssal Seeker soared into the vast celestial expanse, the
 hearts of its crew as resilient and steadfast as the dark infinity they
 sought to explore.\
+\
 2\
 In the sterile confines of The Celestial Seeker, J3 stood in front of
 the viewport, gazing at the shimmering stars that lay scattered across
