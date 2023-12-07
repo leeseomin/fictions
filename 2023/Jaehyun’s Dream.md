@@ -1,7 +1,7 @@
 \
 \"Jaehyun\'s Dream\" \
 \
-\
+\LEE SEOMIN (이서민)
 \
 1\
 \
