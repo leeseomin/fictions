@@ -1078,4 +1078,5 @@ deep discussions among scholars and scientists.\
 Before these feelings of restlessness could fully develop, an
 unimaginably large planet hurtles towards Earth. In that moment, those
 who are immortal experience a sudden surge of exhilaration.\
+\
 End.
