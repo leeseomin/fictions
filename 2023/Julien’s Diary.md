@@ -212,8 +212,10 @@ calamity but by the delicate suspicion of promise interlaced within
 destruction. --- Now more than ever, we navigate by the stars we cannot
 see, through night perpetual. Our hands grope in the gloom, grasping for
 one another; our fingers entwine, seeking salvation in connection over
-the void of our fears.\
-**4** In a world dimmed by dust and disquiet, within the sterile
+the void of our fears.
+\
+4\
+In a world dimmed by dust and disquiet, within the sterile
 confines of hermetically sealed laboratories, an undercurrent of elation
 coursed through the veins of a dedicated cabal of scientists. The
 onslaught of despair that had gripped the world was, for these select
@@ -284,8 +286,10 @@ enlightened enclaves, a collective euphoria simmered, the enthusiasm of
 shared discovery bubbling like a panacea against the plagues of despair.
 Here, wisdom bore its lamp high, and science, its acolytes impassioned
 by the prospect of an omen turned oracle, dared to whisper of dawn
-amidst the enduring twilight.\
-**5** Across the world, the mahogany-laden inner chambers of industry
+amidst the enduring twilight.
+\
+5\
+ Across the world, the mahogany-laden inner chambers of industry
 captains and financiers buzzed with an energy incongruous with the
 morose cadence that had befallen the populace. These magnates, mavens of
 capital and stewards of resource conglomerates, understood that within
@@ -360,7 +364,9 @@ disquiet cast by alien dust and viral woe, their discourse took shape
 progenitors of rebirth or the harbingers of deeper ruination, their
 ambition promised to weave the very fabric of the future, stitching the
 strands of hope and avarice into a new testament of human ingenuity.\
-**6** As the aftermath of the celestial intrusion unfurled its
+\
+6\
+As the aftermath of the celestial intrusion unfurled its
 calamitous symphony, the global populace found itself poised on the
 precipice of pandemonium. The once orderly march of society began to
 falter, staccato beats of fear-filled hearts drumming the rhythm of
@@ -433,8 +439,10 @@ world, humanity grappled with an incipient madness --- a dissonance
 between what was known and what fears were projected onto the murk of an
 uncertain tomorrows. The extinction they feared was not just of the
 flesh but of the soul --- a spirit unmoored in the descent into
-pandemonium, grappling for a lifeline amidst the deluge of panic.\
-**7** In the burgeoning silence that followed Earth's rebuke, humanity's
+pandemonium, grappling for a lifeline amidst the deluge of panic.
+\
+7\
+ In the burgeoning silence that followed Earth's rebuke, humanity's
 search for meaning within the chaos shifted, for some, toward the
 divine. On the crested waves of fear, a sea change of spiritual
 discontent rose to meet the tides of the catastrophic new world. It
@@ -510,7 +518,9 @@ humanity found itself riven --- between those who looked to the skies
 and pleaded for mercy and those who simply searched the firmament for a
 sign that tomorrow might dawn brighter than the twilight that besieged
 them.\
-**8** That particular post-collision evening, beneath the dusky cloak of
+\
+8\
+That particular post-collision evening, beneath the dusky cloak of
 twilight, with the leviathan shadow of the meteor's legacy cast
 emphatically upon the world, the charlatans emerged. Emerged from the
 fissures and crevices of a society frayed at the edges, they were the
@@ -566,7 +576,9 @@ through the remaining whisper of his green wards, someday eclipse the
 malevolent chorus of the mirage merchants? Perhaps only time, the most
 neutral of arbiters, could render its verdict upon the scales of truth
 and illusion.\
-**9** In the world now marred by the absence of stars, where dusk and
+\
+9\
+In the world now marred by the absence of stars, where dusk and
 dawn danced in a perpetual twilight, the fabric of society had been torn
 mercilessly by the celestial maelstrom. Yet, humanity, in its most
 remarkable resilience, sought light amidst the engulfing shadows. In
@@ -627,7 +639,9 @@ every uttered possibility. The green heralded at once the prospect of a
 nascent Eden --- and the dread of it being merely a mirage in the
 collective mind's thirsting desert. And within that delicate balance
 teetered the next chapter of the human saga.\
-**10** The secrecies of nature, those most complex of codices, lay
+\
+10\
+ The secrecies of nature, those most complex of codices, lay
 beneath the fervent scrutiny of those who dared dream of deciphering
 them. Julien Marechal's sanctuary of chlorophyll-laden life forms became
 no less than an ark of hope, sequestered within the heart of a world
@@ -700,7 +714,9 @@ held in suspense --- poised on the verge of an exhalation that could
 mark either a requiem or an overture to a cure long yearned for --- it
 was within the key to salvation that our fate teetered uniquely,
 precariously, beautifully.\
-**11** Within the withdrawn cloister of his apartment, long after
+\
+11\
+Within the withdrawn cloister of his apartment, long after
 Julien's untimely departure from the commotion of the living, remained
 the testament to his wanderlust: an anthology of worn and leather-bound
 diaries. Each volume, a detailed cartography of traverses and
