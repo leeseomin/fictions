@@ -1,6 +1,6 @@
 ## A Fleeting Stroke or Temporal Eternity
 
-### LEE SEOMIN (이서민)
+#### LEE SEOMIN (이서민)
 
 \
 1\
