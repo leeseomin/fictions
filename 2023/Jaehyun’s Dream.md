@@ -94,7 +94,7 @@ the computer screen seemed the only refuge. Another battle in the game
 had concluded, and a new trophy had been added to Aeleon\'s collection.\
 Suddenly, within the virtual landscape, an unexpected change
 materialized. An NPC stepped out from the shadows, casting an extra
-layer upon the tapestried wall. His attire appeared unremarkable, but
+layer upon the entangled wall. His attire appeared unremarkable, but
 there was an unfamiliar allure in the glint of his eye. As Jaehyun
 locked gaze with this enigmatic NPC, he felt his heart skip in an
 irregular beat.\
