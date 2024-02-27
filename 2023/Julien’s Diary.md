@@ -192,7 +192,7 @@ with naught but desperation clutched at totems and relics; a talismanic
 guard against the invisible siege that encroached upon them all. Loved
 ones clung tighter, strangers distrusted deeper, and each dusk came
 swifter, the days blurred by the omnipresent haze. Amidst this darkling
-realm, a peculiar narrative wove itself into the tapestry of humanity's
+realm, a peculiar narrative wove itself into the entanglement of humanity's
 plight --- the tale of a greenhouse rampant with exotic growths in the
 heart of a city, and its sole, prematurely departed, cultivator. Rumors
 tangled with fact --- a botanist, a collection of otherworldly
@@ -259,7 +259,7 @@ craft. "It's as if fate conspired for eons, charting the path of this
 celestial emissary --- to us, to here," she spoke softly. "The universe
 may indeed be chaotic, but within that chaos lies the order of
 probability." "Is that a comfort, Dr. Adebayo?" asked her assistant, who
-had grown accustomed to these ruminations. "In the grand tapestry, we
+had grown accustomed to these ruminations. "In the grand entanglement, we
 are but a stitch," she replied, a note of philosophical resignation in
 her tone. "Yet today, we might just unravel the thread that redefines
 the entire pattern." Back among the biologists, the discourse swelled to
@@ -470,7 +470,7 @@ louder proclamations of doom and salvation that echoed off decaying
 facades --- repeated by many in the ashen gloom. In the digitized
 corridors of virtual congregations, texts ancient and apocalyptic were
 dissected and deployed with newfound urgency. Threads weaved the fabric
-of a complex tapestry --- a narrative of punishment and purification,
+of a complex entanglement --- a narrative of punishment and purification,
 with every commenter a weaver, a theologian grasping at threads to draw
 a cleaner line through the uncertainty of their sundered world. An
 audience, fragmented across disparate corners of the globe, immersed
@@ -612,7 +612,7 @@ of the world might find its antithesis. Through the veins of the city
 flowed the resurgence of optimism. One hears a garment merchant to his
 customer: "They say that even the dying breaths of his plants carry a
 vitality bereft in this world." Tales like this embroidered the
-commonplace, giving rise to a communal tapestry of longing for the
+commonplace, giving rise to a communal entanglement of longing for the
 salvation embodied by the fruits of Julien's silent guardianship. ---
 Here, ensconced in the forsaken respite of a library now inhabited only
 by the ghosts of literary past and the occasional reader, I descend into
@@ -741,7 +741,7 @@ whispered to herself, caressing a dried flower, its colors having
 conceded only so much to time. She became a conduit through which
 Julien's silent dialogues with the past might flourish anew, within the
 conscience of the bereaved and the hope of the desperate. Voices
-conversing among the shelves of the apartment wove a tapestry of
+conversing among the shelves of the apartment wove a entanglement of
 speculation and wonder. "Do you think he knew, somehow, that his work
 would hold such significance?" questioned Pierre, a researcher who had
 joined the unraveling of Julien's enigmatic past. Léonie contemplated
@@ -869,7 +869,7 @@ engrossed in the tender guardianship of his precious vegetal wards,
 found himself prey to the choking grasp of envy and betrayal? The
 quietude seemed almost to suffocate as they delved deeper into the
 happenstance and encounters Julien documented, those that had threaded
-through the tapestry of his existence. Léonie --- her hands trembling
+through the entanglement of his existence. Léonie --- her hands trembling
 with the weight of each page turned, her face a canvas upon which grief
 painted its indelible strokes --- posed an aching inquiry amongst those
 who gathered in shared solitude. "Was it his relentless pursuit of
